@@ -10,10 +10,10 @@ Thank you for your interest in the CyberGlen Digital Safety Initiative. We belie
 * **General Support:** We welcome any expertise—whether technical, organizational, creative, or otherwise—that can strengthen this initiative. If you have a skill or an idea that can help, we want to hear from you.
 
 ### 📩 How to start:
-If you would like to participate, please reach out directly via email at: **[ТВІЙ ІМЕЙЛ ТУТ]** or message me on LinkedIn.
+If you would like to participate, please reach out directly via email at: oxyvun@gmail.com or message me on LinkedIn Oksana Syvun.
 
 Please let us know:
-1. Your professional background or skills you’d like to share.
+1. What skills you’d like to share.
 2. What part of the initiative interests you the most.
 
 ---
